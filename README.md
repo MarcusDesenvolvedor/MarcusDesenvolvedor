@@ -21,5 +21,5 @@ Amo a tecnologia e como ela se comporta, sempre busco aprimorar minhas habilidad
 
 ## Entre em contato comigo:
 
-- ✉️ [E-mail](marcussilva15@outlook.com.br)<br/>
+- ✉️ E-mail: marcussilva15@outlook.com.br<br/>
 - 📲 [Whatsapp](https://wa.me/+5545988020606)<br/>
